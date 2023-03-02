@@ -1,1 +1,2 @@
 AAaaaAAAAAAAAAAAAAAA
+Dopolnil polnoy instructiey
